@@ -1,1 +1,1 @@
-# 1-anh-kh-ng-c-th-100-anh-v-y-
+# 1 anh khong duoc thi 100 anh
